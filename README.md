@@ -1,0 +1,1 @@
+Adolfovice domašov
